@@ -10,5 +10,5 @@
 - 💬 Ask me about mi carrera y deportes
 - 📫 How to reach me: ...
 - 😄 Pronouns:Maik
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: Mido 1.68
 
